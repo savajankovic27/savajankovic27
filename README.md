@@ -35,6 +35,6 @@
 * 🌍 Always open to exciting Data Engineering opportunities, no matter where they might be!
 
 ### 🌐 Let's Connect!
-Add me on LinkedIn! [Your Name](https://www.linkedin.com/in/your-linkedin-profile/)
+Add me on LinkedIn! [Sava Jankovic](https://www.linkedin.com/in/savajankovic/)
 
 
